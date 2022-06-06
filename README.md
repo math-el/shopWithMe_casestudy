@@ -1,0 +1,1 @@
+# shopWithMe_casestudy
